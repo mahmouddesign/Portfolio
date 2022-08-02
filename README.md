@@ -1,6 +1,0 @@
-# Portfolio
-##welcome
-
-
-
-## note
